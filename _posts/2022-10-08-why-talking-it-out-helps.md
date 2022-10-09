@@ -11,14 +11,6 @@ author:
 
 There's more to the age-old advice to just "talk it out" than there seems. Here's some of the evidence that explains why it is so helpful.
 
--   Give this article
-
-![](https://static01.nyt.com/images/2020/04/12/smarter-living/13sl-talking/00sl-talking-articleLarge.jpg?quality=75&auto=webp&disable=upscale)
-
-Credit...Marion Fayolle
-
-![](https://static01.nyt.com/images/2020/04/12/smarter-living/13sl-talking/00sl-talking-articleLarge.jpg?quality=75&auto=webp&disable=upscale)
-
 By Eric Ravenscraft
 
 April 3, 2020
