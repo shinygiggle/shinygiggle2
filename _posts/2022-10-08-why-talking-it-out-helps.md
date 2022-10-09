@@ -42,10 +42,6 @@ When you are feeling very intense feelings --- especially fear, aggression or an
 
 [Research from U.C.L.A.](https://www.ncbi.nlm.nih.gov/pubmed/17576282) suggests that putting your feelings into words --- a process called "affect labeling" --- can diminish the response of the amygdala when you encounter things that are upsetting. This is how, over time, you can become less stressed over something that bothers you. For example, if you got in a car accident, even being in a car immediately afterward could overwhelm you emotionally. But as you talk through your experience, put your feelings into words and process what happened, you can get back in the car without having the same emotional reaction.
 
--   Thanks for reading The Times.
-
-[Subscribe to The Times](https://www.nytimes.com/subscription?campaignId=9L9L9)
-
 [Research from Southern Methodist University](https://psych415.class.uic.edu/Readings/Pennebaker,%20disclosure%20-%20immune,%20JCCP,%201988.pdf) suggested that writing about traumatic experiences or undergoing talk therapy had a positive impact on a patient's health and immune system. The study argues that holding back thoughts and emotions is stressful. You *have* the negative feelings either way, but you have to work to repress them. That can tax the brain and body, making you more susceptible to getting sick or just feeling awful.
 
 None of that is to say that talking about your problems, or even talk therapy with a licensed therapist, will automatically fix everything and immediately make you happy and healthy. But, like eating better and exercising, it can contribute to overall improvement in your well-being. More important, it can help you understand how and why you feel the way you do, so you can handle your emotions more effectively in the future.
