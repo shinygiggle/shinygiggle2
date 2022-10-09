@@ -3,7 +3,7 @@ layout: post
 title: Why talking it out helps
 date: 2022-10-08
 categories: health
-image: "/assets/storiesforboys.png"
+image: "/assets/talkingitout.png"
 author:
 - ShinyGiggle
 ---
